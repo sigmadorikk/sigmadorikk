@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Swireqs
-- 👀 I love Anime
-- 😉You dont know more about me ^^
+- 👋 yo xeno z tej strony
+- 👀 jebac cweli
+- 😉 chuj kurwa i chuj
