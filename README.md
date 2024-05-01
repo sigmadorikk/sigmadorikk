@@ -1,3 +1,3 @@
-- 👋 yo xeno z tej strony
-- 👀 jebac cweli
-- 😉 chuj kurwa i chuj
+- 👋 discord: gvwnololxd
+- 👀 making small projects (4fun)
+- 😉 google translate
