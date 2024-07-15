@@ -1,3 +1,1 @@
-- 👋 discord: gvwnololxd
-- 👀 making small projects (4fun)
-- 😉 google translate
+?
